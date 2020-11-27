@@ -15,8 +15,13 @@
 ###  Connect with me:
 
 <br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [Email](hgibson@gmail.com)
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [LinkedIn](https://www.linkedin.com/in/heather-gibson-4089721b9/)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+
+[Email](hgibson@gmail.com)
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
+
+[LinkedIn](https://www.linkedin.com/in/heather-gibson-4089721b9/)
 
 😄 Pronouns: She/Her/Hers <br>
 ⚡ Fun facts:<br>
