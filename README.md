@@ -15,13 +15,9 @@
 ###  Connect with me:
 
 &nbsp;&nbsp;
-[Email](mailto:hgibson@gmail.com?subject=[GitHub]%20Source%20Han%20Sans)
+[Email](mailto:hgibson@gmail.com?subject=[GitHub]%20Source%20Han%20Sans) &nbsp;&nbsp; [LinkedIn](https://www.linkedin.com/in/heather-gibson-4089721b9/)
 
-&nbsp;&nbsp;
-[LinkedIn](https://www.linkedin.com/in/heather-gibson-4089721b9/)
-
-😄 Pronouns: She/Her/Hers <br>
-⚡ Fun facts:<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; : In my previous career I was flight attendant with a major US airlins.
+<br>
+⚡ Fun facts:: In my previous career I was flight attendant with a major US airline.
 
 
