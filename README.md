@@ -14,13 +14,10 @@
 
 ###  Connect with me:
 
-<br>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
+&nbsp;&nbsp;
+[Email](mailto:hgibson@gmail.com?subject=[GitHub]%20Source%20Han%20Sans)
 
-[Email](mailto:hgibson@gmail.com?subject=[GitHub]%20Source%20Han%20Sans))
-
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
-
+&nbsp;&nbsp;
 [LinkedIn](https://www.linkedin.com/in/heather-gibson-4089721b9/)
 
 😄 Pronouns: She/Her/Hers <br>
