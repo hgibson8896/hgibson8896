@@ -17,7 +17,7 @@
 <br>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 
 
-[Email](hgibson@gmail.com)
+[Email](mailto:hgibson@gmail.com?subject=[GitHub]%20Source%20Han%20Sans))
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
