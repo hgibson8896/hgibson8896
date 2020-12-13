@@ -1,6 +1,6 @@
 <img src="./img/minneapolis.jpg"  >
 
-# Hi there, I'm Heather 👋
+# Hi there, I'm Heather 👋🏾
 
 
 ## I am currently enrolled in the Java bootcamp at the Software Guild! Welcome to my github page! 
