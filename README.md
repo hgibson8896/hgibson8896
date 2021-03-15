@@ -3,7 +3,7 @@
 # Hi there, I'm Heather 👋🏾
 
 
-## I am currently enrolled in the Java bootcamp at the Software Guild! Welcome to my github page! 
+## I am currently a Dev10 Software Developer Trainee at Genesis10! Welcome to my github page! 
 
 <br>
 
