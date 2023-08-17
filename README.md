@@ -3,11 +3,8 @@
 # Hi there, I'm Heather 👋🏾
 
 
-## I am currently a Dev10 Software Developer Trainee at Genesis10! Welcome to my github page! 
+## I am a fullstack developer at HealthPartners! Welcome to my github page! 
 
-<br>
-
-### ✨  [Heather Gibson Resume](./img/RESUME_B-1.jpg) ✨
 
 <br>
 
